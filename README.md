@@ -1,3 +1,0 @@
-# 
-
-### its my first game,
